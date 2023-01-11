@@ -5,3 +5,15 @@ f sdjidfnk jgnlfdg dfglpd
 	g d
 	fg
 	d
+	rewr 
+	rwerw
+	rew
+	rrwer
+	rwer
+	r
+	rwerw
+	r
+	werewq
+	q
+	q
+	ewqe wq
